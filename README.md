@@ -1,1 +1,0 @@
-# istiqamaharchi.github.io
